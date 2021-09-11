@@ -1,1 +1,1 @@
-# dialova.github.io
+# dialogika
